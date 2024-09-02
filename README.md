@@ -1,4 +1,4 @@
-# 👋 Welcome to [Your Name]'s GitHub Profile!
+# 👋 Welcome to Neil Aldrei's GitHub Profile!
 
 ## 🚀 About Me
 
